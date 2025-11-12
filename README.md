@@ -1,4 +1,4 @@
-# Malady Paladin & Resume/CV
+# Resume/CV, Malady Paladin, and Rhyme Cube
 
 ## What to do
 - Hire me
